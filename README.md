@@ -12,4 +12,10 @@
  > Microsoft Power Bi
 >Excel
 > Power Point
+>
+>
+> ![CAPA](https://github.com/MANASSES2710/E4-INFO/assets/163482609/7d8793b8-98eb-4ff2-bd03-d0beb4d8ae85)
+![2](https://github.com/MANASSES2710/E4-INFO/assets/163482609/b4a5327b-1381-4531-a86e-59cd6823fd3d)
+![3](https://github.com/MANASSES2710/E4-INFO/assets/163482609/0ec33e62-22f1-4461-a632-b723f96e5a96)
+
 
